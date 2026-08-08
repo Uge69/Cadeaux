@@ -1,53 +1,67 @@
 # Idées Cadeaux Céline
 
+## Sport
+
+- Porte vélo pour voiture (pour 3 vélo)
+- Bâton marche nordique
+- montre sport - fitbit charge 6 ou autre  fitbit5 ou autre à voir
+
 ## Divers
 
-- Bon pour massage
-- bon pour un soin
-- place pour un spectacle d'humoriste ou autre - ex Montreux comedy
-- sac à main marron foncé ou noir – taille médiane – (qui ferme complétement avec fermeture éclair pas juste un bouton pression)
-- souris ergonomique
-- Coffret massage madérothérapie (voir nature et découverte)
-- coussin de massage shiatsu
-- cours golf (golf miramas)
-- mineraux pour ma collection
-
-## voyage
-
-- weekend en suisse pour le montreux comedy
-  ou n'importe ou ;)
-
-## Jeux
-
-- [stellarscope](https://www.natureetdecouvertes.com/optique-astronomie/telescopes/accessoires-astronomie/stellarscope-53162410)
-
-## Maison/Deco
-
-- Congélateur armoire à tiroir pour le garage
-- Un robot cuiseur
-- un joli miroir pour l'entrée avec cadre en bois
-- fontaine d'interieur
-- aspirateur à main sans fil
-- lampe catalytique
-- carré potager surelevé
+- nouveau téléphone samsung
+- Set outils plantes d'appartement (pour l’entretien de mes terrarium)
+- un nouveau terrarium
+- un arbuste oranger en pot
+- kit bonsai ([exemple](https://www.natureetdecouvertes.com/deco-maison/plantes-interieur/plantes-atypiques/kit-bonsai-a-faire-pousser-50177010))
+- Appareil photo : objectif photo macro pour appareil photo canon
 
 ## Bijoux
 
 - Chaine avec pendentif en argent ou or blanc
-- Bracelet en argent ou or blanc
+- bracelet jonc (maille polonaise, corde ou torsade)
+-  bracelet type pandora
+-  boucle d'oreille
+- bague
 
-## Sport
+## Vetements
 
-- pilate ring
-- Porte vélo pour voiture (pour 3 vélo)
-- Bâton marche nordique 
+- Bon achat chez armand thiery
+- [Valet de chambre](https://amzn.eu/d/0zpTVn3)
+- sac cabaia crossbody adventurer medium
 
-## Autres
+## Sortie
 
-- crime en image - nature et découvertes
-- Menez votre propre enquête
-- Claude Cancès – brigade mondaine
-- [cartes a jouer pour bouger](https://www.natureetdecouvertes.com/livres-loisirs/librairie-bien-etre/activites-physiques/cartes-a-jouer-pour-bouger-10250110)
-- [kit fabrication gateaux magic shaker](https://www.natureetdecouvertes.com/thes-epicerie/a-faire-soi-meme/kit-cuisine/kit-fabrication-gateaux-magic-shaker-61186280)
-- arrêtez d'assassiner vos plantes - larrousse
+- place pour un spectacle d'humoriste ou autre (verino par exemple, shen yun)
+  - Ballet 
+  - opéra 
+
+## Deco
+
+- Carte du monde en bois avec drapeau – comme ce qu’on avait vu au marché de noel à Lyon
+- Fontaine d'intérieur
+- tableau en plusieurs apnneaux pour le salon - theme Alpes enneigée/lac de montagne
+
+## Bien être
+
+- Bon pour massage
+- bon pour un soin
+
+## Insolite
+
+- rage room - lancon provence
+- [initiation pilotage drone](https://www.adrenactive.com/pilotage-drone-salon-de-provence-9159.htm)
+- escape game (en salle ou en pleine nature)
+- [st michel l'observatoire](https://www.centre-astro.com/grand-public/soiree-decouverte/)
+
+
+## Livre
+
 - roch et mineraux - chris pellant
+- H Y ANNA - serie petit crime et jardins secret
+- Preston &child serie de Pendergast
+
+## Film
+
+- les gendarmes de saint tropez - coffret
+- [sherlock holmes : Collection de 50 Cartoons](https://amzn.eu/d/4jk180c)
+  

@@ -1,6 +1,6 @@
 # Idées Cadeaux Gabriel
 
-- [Voir Amazon](https://www.amazon.fr/hz/wishlist/ls/N2LON7I7DD9B?ref_=wl_share)
+<!--- [Voir Amazon](https://www.amazon.fr/hz/wishlist/ls/N2LON7I7DD9B?ref_=wl_share)-->
 
 ## Livres
 
@@ -8,65 +8,60 @@
 
 #### Anglais
 
-- [Death March to the Parallel World Rhapsody, Vol. 14+](https://amzn.eu/d/iOWsTjT) (j'ai jusqu'au 13) [15](https://amzn.eu/d/dyUJ5aX) [16](https://amzn.eu/d/aOXCwLF) [17](https://amzn.eu/d/7evaJus) [18](https://amzn.eu/d/5jH7XTp) [19](https://amzn.eu/d/6L55n54) [20](https://amzn.eu/d/dQifI4W) [21-preco](https://amzn.eu/d/dizSZ1k)
-- [By the Grace of the Gods 8+](https://amzn.eu/d/d9WOI6K) [9](https://amzn.eu/d/6P3OWqT) [10](https://amzn.eu/d/gJ4bBOx) [11](https://amzn.eu/d/fnZFM16)
-- [Accomplishments of the Duke's Daughter 5+](https://amzn.eu/d/hITR6Ek) [6](https://amzn.eu/d/j2k1F92)
-- [7th Time Loop 2+](https://amzn.eu/d/9j70whU) [3](https://amzn.eu/d/bxmT2Fb)
-- [That Time I Got Reincarnated as a Slime, Vol. 9+](https://amzn.eu/d/d1o56R2) [10](https://amzn.eu/d/g745SYq) [11](https://amzn.eu/d/8pPaKJH)
+- **[By the Grace of the Gods 10+](https://amzn.eu/d/gJ4bBOx) (j'ai jusqu'au 9) [11](https://amzn.eu/d/fnZFM16)**
+- [Ascendance of a Bookworm : Part 5 Volume 1+](https://amzn.eu/d/8XvEJGj) [Part 5 Volume 2](https://amzn.eu/d/jcJGzZW) [Part 5 Volume 3](https://amzn.eu/d/bePvSwQ)
+- [The Saga of Tanya the Evil 6+](https://amzn.eu/d/7OaR80q) [List](https://www.amazon.fr/dp/B084S579PF?binding=paperback&ref=dbs_dp_sirpi)
 - [Reborn as a Space Mercenary: I Woke Up Piloting the Strongest Starship! 1+](https://amzn.eu/d/2dTK6kO) [2](https://amzn.eu/d/ebwKAzb) [3](https://amzn.eu/d/6y15BVs) [4](https://amzn.eu/d/bl94Q8U) [5](https://amzn.eu/d/90icnlV) [6](https://amzn.eu/d/ap5uSTx) [7](https://amzn.eu/d/1xg7MYZ)
+- [Death March to the Parallel World Rhapsody, Vol. 14+](https://amzn.eu/d/iOWsTjT) [15](https://amzn.eu/d/dyUJ5aX) [16](https://amzn.eu/d/aOXCwLF) [17](https://amzn.eu/d/7evaJus) [18](https://amzn.eu/d/5jH7XTp) [19](https://amzn.eu/d/6L55n54) [20](https://amzn.eu/d/dQifI4W) [21-preco](https://amzn.eu/d/dizSZ1k)
+- [7th Time Loop 4+](https://amzn.eu/d/0iqGFrM3) [List](https://www.amazon.fr/dp/B0B25F59YC?binding=paperback&ref=dbs_dp_sirpi)
+- [That Time I Got Reincarnated as a Slime, Vol. 9+](https://amzn.eu/d/d1o56R2) [10](https://amzn.eu/d/g745SYq) [11](https://amzn.eu/d/8pPaKJH)
 - [I'm the Evil Lord of an Intergalactic Empire! 1+](https://amzn.eu/d/hniOL6L) [2](https://amzn.eu/d/830vLDJ) [3](https://amzn.eu/d/d1o56R2)
 - [Bofuri 2+](https://amzn.eu/d/977HZJq) [3](https://amzn.eu/d/bfnaSS3) [4](https://amzn.eu/d/c2s19wy) [5](https://amzn.eu/d/iTOEOXp) [6](https://amzn.eu/d/i5DttVS) [7](https://amzn.eu/d/2JEcApu) [8](https://amzn.eu/d/fkIs5Y8)
-- [Villainess Level 99 1+](https://amzn.eu/d/1JzA1XR)
-- [The Saga of Tanya the Evil 6+](https://amzn.eu/d/7OaR80q)
-- [Arifureta 7+](https://amzn.eu/d/74KBMGr)
-- [Survival in Another World with My Mistress! 1+](https://amzn.eu/d/9xeK6pm) [2](https://amzn.eu/d/hE5plxq) [3](https://amzn.eu/d/3JfdH4U)
+- [Arifureta 7+](https://amzn.eu/d/90M38Lm) [8](https://amzn.eu/d/ij1hsgp) [9](https://amzn.eu/d/6v5hGqg) [10](https://amzn.eu/d/7kxhOfF)
+<!-- - [Survival in Another World with My Mistress! 1+](https://amzn.eu/d/9xeK6pm) [2](https://amzn.eu/d/hE5plxq) [3](https://amzn.eu/d/3JfdH4U) -->
 - [Didn't I Say to Make My Abilities Average in the Next Life?! 8+](https://amzn.eu/d/fNh0oVN)
+- [Accomplishments of the Duke's Daughter 6+](https://amzn.eu/d/j2k1F92)
+- [Villainess Level 99 1+](https://amzn.eu/d/9uVDKx3) (light novel pas encore editer en format papier pour le moment !)
 
 #### Français
 
 ##### Edition LUMEN
 
-- Les Carnets de l'Apothicaire - Tome 5+ romans/light novel edition LUMEN (date de sortie non planifier)
+- Les Carnets de l'Apothicaire - Tome 8+ romans/light novel edition LUMEN
 
-##### Edition La-Novel
+##### Edition La-Novel (Editeur a déoposé le bilan...)
 
-- [Ascendance of a Bookworm - La Petite Faiseuse de Livre 6+](https://www.amazon.fr/dp/B09JQL1N8W?binding=paperback&ref=dbs_dp_sirpi) [La-Novel Edition](https://boutique.lanovel-edition.fr/23-ascendance-of-a-bookworm) (tome 6 le sortie le 26/11/24)
+- [Ascendance of a Bookworm - La Petite Faiseuse de Livre 6+](https://www.amazon.fr/dp/B09JQL1N8W?binding=paperback&ref=dbs_dp_sirpi) [La-Novel Edition](https://boutique.lanovel-edition.fr/23-ascendance-of-a-bookworm) (Editeur mort mais on ne sait jamais....)
 
 ##### Edition OFELBE
 
 - Overlord 6+
-- Log Horizon 4+
+- LOG Horizon 4+
 - The irregular at magic High School 3+
 
 ##### Edition Maho
 
-- [86](https://www.maho-editions.com/category/86-eighty-six) [1+](https://amzn.eu/d/iPsmjOu)
-- The Eminence in Shadow 3+
+- **[The Eminence in Shadow](https://www.maho-editions.com/category/the-eminence-in-shadow) [4+](https://amzn.eu/d/hC7xlUQ)**
+- **[86](https://www.maho-editions.com/category/86-eighty-six) [1+](https://amzn.eu/d/iPsmjOu)**
+- [Mynoghra, Annonciateur de l'apocalypse](https://www.maho-editions.com/category/mynoghra-annonciateur-de-lapocalypse)
 
 ### BD
 
-- Chroniques de la lune noire 22+ (j'ai jusqu'au 21)
+- Chroniques de la lune noire 24+ (j'ai jusqu'au 23)
 - Orbital 8+
 - Isabellae 2+
 - La quête de l'oiseau du temps 5+
 - Okko 3+
 - Samurai 13+
-- Les naufragés d'ythaq 3+
-- [Une mémoire de Roi](https://amzn.eu/d/akRZFRR)
+- Les naufragés d'ythaq 8+
 
 ### Roman
-
-#### Isaac Asimov
-
-##### Cycle de l'Empire
-
-- Tyrann
-- Les Courants de l'espace
-- Cailloux dans le ciel
 
 #### Peter F. Hamilton
 
 - [Voir page wikipedia](https://fr.wikipedia.org/wiki/Peter_F._Hamilton#Romans)
+  - J'ai déjà
+    - L'aube de la nuit T1
 
 ### Dev
 
@@ -76,84 +71,137 @@
 
 ### Jeux de sociétés
 
-- Extensions pour 7 Wonders Duel
-  - [Pantheon](https://amzn.eu/d/cwFCRT9)
-- Jeux d'échecs
+- Imperium : Antique
+- Dune: Imperium
 - [Carcassonne](https://amzn.eu/d/7SsqS5n)
 - Gloomhaven
+- Clank !
+- Dice Forge
+- Dominion
+- Aeon's End
+- Les Ruines Perdues de Narak
 
-### Jeux switch (par ordre de préférence)
+### Organiseur/Rangement de boite pour les Jeux de sociétés
 
-- Unicorn Overlord
-- FANTASY LIFE i : La voleuse de temps (sortie prevu pour 10/10/24 mais semble retarder...)
-- Fire Emblem Engage
+- Terraforming mars
+
+### Jeux Switch 1
+
+- **FANTASY LIFE i : La voleuse de temps**
+- Final Fantasy Resonance
 - Triangle strategy
 - Octopath traveler II
 - Tales of Vesperia: Definitive Edition
+- DRAGON QUEST VII Reimagined
 - Dragon Quest XI: Les combattants de la destinée
 - Super MARIO 3D World
-- Eiyuden Chronicles - Hundred Heroes!
-- The Legend of Zelda : Skyward Sword HD
 - Baldur's Gate 1 and 2: Enhanced Editions / Planescape Torment and Icewind Dale Enhanced Editions
 - Divinity : Original Sin 2
+- The Legend of Zelda : Skyward Sword HD
 - Super Mario RPG
-- [Xenoblade Chonicle X](https://www.nintendo.com/fr-fr/Jeux/Jeux-Nintendo-Switch/Xenoblade-Chronicles-X-Definitive-Edition-2687393.html?utm_medium=paid_social&utm_source=meta&utm_campaign=XenobladeChroniclesXDefinitiveEdition%7Csoftware%7Cpreorder%7Cm_id_167d4f2fa4&utm_term=elysium&utm_creative_format=static&fbclid=IwY2xjawGN_bxleHRuA2FlbQEwAGFkaWQAAAYBlqxiOQEdKwkrX0qRV5znpQLHMTHDC79a20F44ocx8X3AqvkfOA8ypr7UvhlcJ_Fr_aem_CGIAbjI-hOnU4y9cQZbyMQ&utm_id=6602338530489&utm_content=6603536170489) (date de sortie pour mars 2026)
+- Super Mario Galaxy
+- Civilization VII
+- Eiyuden Chronicles - Hundred Heroes!
 
 ### Console
 
 - [SteamDeck](https://store.steampowered.com/steamdeck)
+- Switch 2 avec au choix
+  - **Fire Emblem: Fortune's Weave**
+  - Tales of Arise - Beyond the Dawn Edition
+  - Mario Kart World
+  - Kirby Air Riders
+- Anbernic RG35XX Plus
 
 ### Jeux PC
 
 #### Steam
 
-- [Baldur's Gate 3](https://store.steampowered.com/app/1086940/Baldurs_Gate_3/)
+- **[Crimson Desert](https://store.steampowered.com/app/3321460/Crimson_Desert/)**
+- **[Baldur's Gate 3](https://store.steampowered.com/app/1086940/Baldurs_Gate_3/)**
+- [Horizon Forbidden West](https://store.steampowered.com/app/2420110/Horizon_Forbidden_West_Complete_Edition/)
+<!--- [Sid Meiers Civilization VII](https://store.steampowered.com/app/1295660/Sid_Meiers_Civilization_VII/)-->
 - [Tales of Arise](https://store.steampowered.com/app/740130/Tales_of_Arise/)
+- [=> Liste sur steam <=](https://store.steampowered.com/wishlist/id/sanby/?sort=topsellers)
 
 ### Jeux de construction
 
 #### Lego
 
-- [H175](https://www.lego.com/fr-fr/product/airbus-h175-rescue-helicopter-42145)
-- [DUNE Ornithopter](https://www.lego.com/fr-fr/product/dune-atreides-royal-ornithopter-10327)
+<!-- - [H175](https://www.lego.com/fr-fr/product/airbus-h175-rescue-helicopter-42145) -->
 
-#### Puzzle 3D Mécanique en Bois
+- [Château himeji](https://www.lego.com/fr-fr/product/himeji-castle-21060?ef_id=Cj0KCQjw9O_BBhCUARIsAHQMjS7lm5o-vlorMToJNxaVb6EiV8kllmBacJtOgKmmthCzVFs-uI5LU2waArKGEALw_wcB%3AG%3As&s_kwcid=AL%21933%213%21%21%21%21x%21%21%2119820147256%21&cmp=KAC-INI-GOOGEU-GO-FR_GL-FR-RE-SP-BUY-CREATE-MB_ALWAYS_ON-SHOP-BP-PMAX-ALL-CIDNA00000-PMAX-MEDIUM_PRIORITY&gad_source=1)
 
-- [marble spacesport](https://rokr-robotime.fr/collections/nos-modeles/products/marble-spacesport)
+<!-- #### Puzzle 3D Mécanique en Bois
+
 - [les boules infernales 3](https://rokr-robotime.fr/collections/nos-modeles/products/les-boules-infernales-3)
-- [les boules infernales 2](https://rokr-robotime.fr/collections/nos-modeles/products/copie-de-les-boules-infernales-2)
-
-## Blue-Ray
-
-- Dune 2 (2024)
-- Logan (Wolverin 3)
-- [Paprika](https://amzn.eu/d/8ziJrBD)
-- les gibli
+- [les boules infernales 2](https://rokr-robotime.fr/collections/nos-modeles/products/copie-de-les-boules-infernales-2) -->
 
 ## Electronique
 
-- Casque réducteur de bruit [Sony](https://amzn.eu/d/5OauWJr)[Sacoche](https://amzn.eu/d/eD7cmi3)
-- Switch
-  - Manettes au choix :
-    - [Model 1](https://nyxigame.com/products/nyxi-hyperion-meteor-light-wireless-joy-pad-1)
-    - [Model 2](https://nyxigaming.com/products/nyxi-wizard-wirleless-joy-pad-for-switch-switch-oled)
-  - [Sacoche de rangement](https://nyxigaming.com/products/nyxi-upgraded-carrying-case-for-wireless-joy-pad-nintendo-switch)
+- **[Gamesir Mag-Res](https://gamesir.com/pages/g7-pro-overview) (manette PC)**
 - Eceinte bluetooth maison
-- Eceinte bluetooth voiture
+- Liseuse (Kindle ou autres (avec possibilité de transférer des epub))
+<!-- - [Steam Controller](https://store.steampowered.com/sale/steamcontroller)-->
+- Batterie externe charge rapide solaire (au moins 10000mAh)
+<!-- - Manette 8BitDo Ultimate Bluetooth -->
+- Lunettes VITURE
+
+## Blue-Ray
+
+### Film
+
+- Watchmen : Les Gardiens (2009)
+- Star Wars intégral (enfin, au moins la première trilogie (4, 5, 6))
+- John Wick intégral
+- Blade Runner (film de 1982)
+- Qui veut la peau de Roger Rabbit (1988)
+- Star Trek : Sans limites (2016)
+- Idiocracy
+
+### Animation
+
+- [Paprika](https://amzn.eu/d/8ziJrBD)
+- Origin (spirits of the past) (2006)
+
+#### Ghibli
+
+- **Porco Rosso**
+- Kiki la petite sorcière
+- Le vent se lève
+- Le Tombeau des lucioles
+- Souvenirs goutte à goutte
+- Ponyo sur la falaise
+- Le conte de la princesse Kaguya
+- Arrietty le petit monde des chapardeurs
+
+#### Makoto Shinkai
+
+- **Suzume**
+- 5 Centimètres par seconde
+- Les Enfants du temps
+- Voyage vers Agartha
+- La Tour au-delà des nuages
 
 ## Vêtements
 
 - Polos
-- Veste légère
-- Pantoufles
+- **[Carks Rockie Walk GORE-TEX](https://www.clarks.com/fr-fr/rockie-walk-gore-tex/26173464-p?utm_source=google&utm_medium=cpc&utm_campaign=22642182138&utm_term=&utm_content=198438526052__m_797354372147_261734648090&gad_source=1&gad_campaignid=22642182138&gclid=Cj0KCQjw2MbPBhCSARIsAP3jP9yXZfoYZRGCj5r8mB5MW9Pg6jKVFSHnRcJb8C6UcBup_DSc176n8CYaApndEALw_wcB) en 45**
+- Pyjama d'été
+- Zipped hoodie (style qwertee ou teeturtle)
+
+## Accessoires
+
+- **[Leatherman MICRA](https://eu.leatherman.com/fr-fr/products/micra)**
+- [Leatherman WAVE](https://eu.leatherman.com/fr-fr/products/wave)
+- [Leatherman Accessoire à mousqueton](https://eu.leatherman.com/fr-fr/products/carabiner-accessory)
 
 ## Maison
 
+### Entretien
+
+- [Aspirateur à cendres Kärcher AD 2](https://amzn.eu/d/0dpfWmGB)
+
 ### Meubles
 
-- Desserte de bureau (tirroires, noir, sur roulettes, hauteur max 74cm)
 - Meuble bar fermé
-
-### Cuisine
-
-- Casserole Wok (hauteur min 8cm, rayon min 28cm)
