@@ -1,4 +1,4 @@
-# Idées Cadeaux Gabriel
+I# Idées Cadeaux Gabriel
 
 <!--- [Voir Amazon](https://www.amazon.fr/hz/wishlist/ls/N2LON7I7DD9B?ref_=wl_share)-->
 
@@ -88,6 +88,7 @@
 ### Jeux Switch 1
 
 - **FANTASY LIFE i : La voleuse de temps**
+- [Star Wars : Heritage Pack](https://amzn.eu/d/0j3dLPPC)
 - Final Fantasy Resonance
 - Triangle strategy
 - Octopath traveler II
